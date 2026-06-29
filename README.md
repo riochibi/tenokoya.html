@@ -1,1 +1,1 @@
-# tenokoya
+# tenocoya
